@@ -2,6 +2,8 @@ Selam ben wendos yani : unstoppable
 
 Sanalı bırakıcagım icin register botumu size verme karari aldim. Aşşagıda resimleri birakicam güzel bir star gelirse botu sizlere vericem
 
+Daha fazla özellik var botta hepsini eklemedim star atin atiyim dostum hadi k.g 
+
 
 <img  src="https://cdn.discordapp.com/attachments/1065355500474077319/1066114477663211550/Register.png">
 <img  src="https://cdn.discordapp.com/attachments/1065355500474077319/1066115633760182402/eval.png">
